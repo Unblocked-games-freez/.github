@@ -19,7 +19,7 @@ In recent years, online gaming has become a favorite pastime for many people, pa
 
 Unlike other game websites that may require downloads or installations, Unblocked Games 6x offers direct access to web-based games. Whether you're on a school computer or at work, you can simply visit the website, choose a game, and start playing without worrying about being blocked by network restrictions.
 
-### The Popularity of Unblocked Games 6x
+### The Popularity of Unblocked Games 76
 
 The popularity of Unblocked Games 6x can be attributed to several factors:
 
