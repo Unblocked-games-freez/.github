@@ -70,5 +70,5 @@ While the site provides an easy and enjoyable gaming experience, it's always imp
 Unblocked Games 6x offers a simple and fun way for users, especially students, to enjoy a variety of games during their free time. It’s a great option for those looking for entertainment during breaks without the hassle of downloads or installations. While the site is considered safe, it's important to use discretion when navigating the platform. With its wide selection of games, it’s no surprise that Unblocked Games 6x has become a popular go-to site for online gaming enthusiasts.
 
 Unblocked games are online games accessible on networks where gaming sites are typically restricted, such as schools or workplaces. These games offer a variety of genres, from puzzles to action, providing a fun and stress-free way to relax without the usual limitations.
-
+<a href="https://github.com/Unblocked-games-freez/retro-bowl">retro bowl</a>
 
